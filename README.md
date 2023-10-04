@@ -4,4 +4,4 @@
 
 ⚽ Atualmente alojado no Instituto Jeferson Bizotto, CT Luz da Terra, seguindo a carreira de jogador de futebol
 
-📷 Instagram: ![link](https://www.instagram.com/mathzs_wz)
+📷 Instagram: [link](https://www.instagram.com/mathzs_wz)
